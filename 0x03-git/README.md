@@ -1,1 +1,1 @@
-I am the Best
+God is good
